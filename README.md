@@ -4,7 +4,9 @@
 - 💞️ I’m looking to collaborate on projects related to ⚙️ ai and data 📊
 - 📫 How to reach me 📩 saniya35577@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: can play whole ♕chess easily but cant identify enemy in real life😵‍💫😊 
+- ⚡ Fun fact: "The chessboard reveals every threat in black and white — life, unfortunately, paints its enemies in shades of grey. 😵‍💫😊"
+
+
 
 <!---
 ishrathtahaseen-9/ishrathtahaseen-9 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
